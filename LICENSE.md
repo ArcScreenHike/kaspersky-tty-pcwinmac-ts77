@@ -1,4 +1,4 @@
-# 
+# Automático Kaspersky Total Security scripts para Mac OS | Seguro Kaspersky Total Security scripts para PC Windows. Com túnel dividido e login biométrico — otimizado para máximo desempenho em cada plataforma.
 
 
 
